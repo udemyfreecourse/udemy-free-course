@@ -1,7 +1,5 @@
 
 
-![Banner](Baldoyle-Training-720x480.jpg)
-
 # Table of Contents
 
 - Free and Discount Coupons
